@@ -2,7 +2,7 @@
 
 
 
-Hello! Most of the time on Ponytown, I'm also getting college work done in another tab. So, feel free to interact me but please be aware I might take a bit to respond. Therefore, whispers are preffered. C+H are welcome, even if you don't want to talk. I'm a bit shy myself so I might not initiate conversation.
+Hello! Most of the time on Ponytown, I'm also getting college work done in another tab. So, feel free to interact with me but please be aware I might take a bit to respond. Therefore, whispers are preffered. C+H are welcome, even if you don't want to talk. I'm a bit shy myself so I might not initiate conversation.
 
 Roleplay is OK! However, please let me know first as I do not default to being in-character. I also don't take PonyTown roleplay seriously at all, so be aware of that loll. I do enjoy semi-lit to literate roleplays outside of PonyTown, though! :>
 
