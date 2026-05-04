@@ -2,11 +2,11 @@
 
 
 
-Hello! Most of the time on Ponytown, I'm also getting college work done in another tab. So, feel free to interact with me but please be aware I might take a bit to respond. Therefore, whispers are preffered. C+H are welcome, even if you don't want to talk. I'm a bit shy myself so I might not initiate conversation.
+Hello! Most of the time on Ponytown, I'm also getting college work done in another tab. So, feel free to interact with me but please be aware I might take a bit to respond. Therefore, whispers are preferred. C+H are welcome, even if you don't want to talk. I'm a bit shy myself so I might not initiate conversation.
 
 Roleplay is OK! However, please let me know first as I do not default to being in-character. I also don't take PonyTown roleplay seriously at all, so be aware of that loll. I do enjoy semi-lit to literate roleplays outside of PonyTown, though! :>
 
-90% of my skins/cosplays are of Twisted Wonderland, and half of those are just different versions of Jade. You'll make me a little sad if you mistake me for Floyd </3 (unless its my mer-form skin. Since they have such minimal differences in their appearance in their mer-forms, I use my skin for both of the twins). I do have a few skins that are from other Joseimuke games, but I usually don't bring them out as I don't see many other fans online.
+90% of my skins/cosplays are of Twisted Wonderland, and half of those are just different versions of Jade. You'll make me a little sad if you mistake me for Floyd </3 (THE EXCEPTION TO THIS ARE MY MER-FLOYD SKINS... FLEECH.... ). I do have a few skins that are from other Joseimuke games, but I usually don't bring them out as I don't see many other fans online.
 
 Please don't talk to me if you're a minor. This shouldn't be a problem since I'm only ever on the 18+ server. I will assume you are an adult if you initiate conversation with me. 
 
